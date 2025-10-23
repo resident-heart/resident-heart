@@ -4,7 +4,7 @@
   <br>
      <p> <b>W2I</b> to get my attention , i'm usually offtab ! <br>
      don't be afraid to interact with me :^) i am a wuss and not scary in the slightest </p>
-     <p> do not copy my ponies !! some inspiration is fine , otherwise i will find you </p>
+     <p> do not copy my skins !! some inspiration is fine , otherwise i will find you </p>
      <p> <b>pro/darkship dni</b> , other than that i block freely <br>
      as long as you're not a weirdo you should be fine </p>
    </p>
